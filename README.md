@@ -1,1 +1,1 @@
-![Earth and Mars gif](http://snur.runtime.kz/assets/img/portfolio2gif.gif)
+![Earth and Mars gif](http://snur.runtime.kz/assets/img/portfolio1gif.gif)
